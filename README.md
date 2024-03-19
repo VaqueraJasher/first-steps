@@ -6,7 +6,7 @@ About me 😎: I wanna lear all that I can because I love this world and the com
 
 My age: 18
 
-Why I here in GitHub?🐣: Well, learn for get a job in a future (else domine the english )
+Why I here in GitHub?🐣: Well, I wanna learn for get a job in a future (else domine the english )
 
 Pronouns💫: he/his
 
